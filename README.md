@@ -1,1 +1,0 @@
-# gajewa.github.io
